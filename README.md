@@ -1,1 +1,1 @@
-# JurnalSosial.com
+# JurnalSosial.github.io
