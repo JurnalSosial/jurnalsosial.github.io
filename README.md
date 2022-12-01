@@ -1,0 +1,1 @@
+# JurnalSosial.github.io
